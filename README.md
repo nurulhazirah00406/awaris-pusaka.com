@@ -1,1 +1,0 @@
-# awaris-pusaka.com
